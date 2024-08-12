@@ -4,4 +4,4 @@
 
 ![](https://files.catbox.moe/s0rgp9.png)
 
-[atabook](https://bait.atabook.org/)⠀⠀⠀⠀⠀⠀⠀[retrospring](https://retrospring.net/@tease)
+[atabook](https://liar.atabook.org)⠀⠀⠀⠀⠀⠀⠀[retrospring](https://retrospring.net/@tease)
